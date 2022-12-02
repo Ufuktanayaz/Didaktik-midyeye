@@ -1,0 +1,2 @@
+# Didaktik-midyeye
+Mavi tik
